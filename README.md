@@ -28,7 +28,7 @@ BlueArchiveVoice/
 
 ## 下载链接
 
-- [百度网盘](https://pan.baidu.com/s/1Aj4RexsojXjnVmSIJ84I6Q?pwd=t7j7)
+- [百度网盘](https://pan.baidu.com/s/1Aj4RexsojXjnVmSIJ84I6Q?pwd=t7j7)更新时间2026/3/6
 
 ## 免责声明
 
